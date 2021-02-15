@@ -8,9 +8,8 @@
 
 🐤 https://twitter.com/whtaguy to reach my twitter 
 
-
-<br><br>
-Please don't forget to get your recommended daily intake of calcium!
+<br>
+Don't forget to get your recommended daily intake of calcium!
 
 <!--
 **guywhataguy/guywhataguy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
