@@ -1,6 +1,6 @@
 ### Guy what a guy
 
-When I was 13 I burned my eyelashes off testing a homemade rocket engine. I stayed home until my face healed, and used the time to try something less explosive: programming. I taught myself to write code, then to break it, and I’ve been hacking ever since. 
+When I was 13 I burned my eyelashes off testing a homemade rocket engine. I stayed home until my face healed, and used the time to try something less explosive: programming. I taught myself to write code, then to break it, and I’ve been hacking ever since ;)
 
 👑 https://cyberqueens.org to learn about the program I founded that teaches cyber security to high school girls
 
