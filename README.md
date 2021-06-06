@@ -4,7 +4,7 @@ When I was 13 I burned my eyelashes off testing a homemade rocket engine. I stay
 
 👑 https://cyberqueens.org to learn about the program I founded that teaches cyber security to high school girls
 
-🛰 https://whtaguy.com to reach my blog with my latest security vulnerability research
+👾 https://whtaguy.com to reach my blog with my latest security vulnerability research
 
 🐤 https://twitter.com/whtaguy to reach my twitter 
 
