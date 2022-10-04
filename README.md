@@ -6,7 +6,7 @@ When I was 13 I burned my eyelashes off testing a homemade rocket engine. I stay
 
 👾 https://whtaguy.com to reach my blog with my latest security vulnerability research
 
-🐤 https://twitter.com/whtaguy to reach my twitter 
+🐤 https://twitter.com/mavlevin to reach my twitter 
 
 <br>
 Don't forget to get your recommended daily intake of calcium!
