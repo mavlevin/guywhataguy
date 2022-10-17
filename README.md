@@ -1,4 +1,4 @@
-# Guy Maverick Levin - @guywhataguy
+# Guy Maverick Levin (Mav)
 
 When I was 13 I burned my eyelashes off testing a homemade rocket engine. I stayed home until my face healed, and used the time to try something else, less explosive. I taught myself how to write code, then how to break it, and I’ve been hacking ever since ;)
 
